@@ -10,3 +10,5 @@ Jimmy Perez ist auf den Shetlandinseln verwurzelt. Nach dem Tod seiner Frau kehr
 
 ## Zitat
 > Die Presse liebt Bilder mehr als Worte.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/b/bc/191-detective-1.svg"/>
