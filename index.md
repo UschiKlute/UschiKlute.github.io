@@ -7,3 +7,6 @@ Jimmy Perez ist auf den Shetlandinseln verwurzelt. Nach dem Tod seiner Frau kehr
 * eng verbunden mit Stieftochter Cassie
 * verantwortungsbewusster Vorgesetzter
 * empathisch
+
+## Zitat
+> Die Presse liebt Bilder mehr als Worte.
